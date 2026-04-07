@@ -1,1 +1,0 @@
-# Intralogistics-Software-Market
